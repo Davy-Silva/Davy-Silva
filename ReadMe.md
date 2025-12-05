@@ -1,5 +1,5 @@
 # 💫 About Me:
-📘 Estudante De HTML, CSS e JavaScript<br>🗓️ Estudos Diários Em Casa<br>🔭 Procuro Me Profissionalizar<br>📋 Tenho 16 Anos
+📘 Estudante De HTML, CSS e JavaScript<br>🗓️ Estudos Diários Em Casa<br>🔭 Procuro Me Profissionalizar<br>📋 Tenho 18 Anos
 
 
 ## 🌐 Socials:
